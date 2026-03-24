@@ -39,7 +39,7 @@
 ---
 
 ## 📫 Contact
-- Email universitaire :abdelhadi.zerrei@um5r.ac.ma  
+- Email : issam.abosafouane@gmail.com 
 
 ---
 ✨ Toujours curieux d’apprendre et de partager mes projets !
